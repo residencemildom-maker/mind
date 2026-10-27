@@ -1,0 +1,2 @@
+# mind
+zhansaya shaimerdenova
